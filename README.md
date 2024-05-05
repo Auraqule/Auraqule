@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on transiting to WEB 3.0 (blockchain).<br>🌱 I’m currently learning on NFTS | Metaverse | Crypto-currencies.<br>🤔 I’m looking for help with Exploring New Technologies.<br>💬 Ask me about any tech-related stuff.<br>📫 How to reach me: Email -auraqule@gmail.com<br>😄 Pronouns: He/His<br>⚡ Fun fact: I Love humming while eating a very delicious meal.
+🔭 I’m a Fullstack Software Engineer, currently working on exploring the potential of WEB 3.0 (blockchain) technology.<br>🌱 Currently learning on NFTS | Metaverse | Crypto-currencies.<br>🤔 I constantly love Exploring New Technologies.<br>💬 Ask me about any tech-related stuff.<br>📫 How to reach me: Email -auraqule@gmail.com<br>😄 Pronouns: He/His<br>⚡ Fun fact: I Love humming while eating a very delicious meal.
 
 
 ## 🌐 Socials:
